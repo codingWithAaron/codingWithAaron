@@ -1,5 +1,4 @@
 - 👋 Hi, I’m Aaron Arguelles!
-- 👀 I’m interested in video games, Dungeons and Dragons, and coding.
 - 📫 How to reach me: (435) 994-4203 or arguelles.business@gmail.com.
 
 <!---
